@@ -11,5 +11,5 @@ NL在中低端电脑频繁闪退
 其他无数据 不建议
 官方QQ群746033169
 网址www.dz8.co
-论坛bbs.dz8.co独家发行
+论坛bbs.dz8.co
 商城shop.dz8.co
